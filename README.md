@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @athen5
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning javascript
+- 💞️ I’m looking to collaborate on tech company
+- 📫 How to reach me: adevwsd@gmail.com
+- 😄 Pronouns: athens
+- ⚡ Fun fact: $BTC
